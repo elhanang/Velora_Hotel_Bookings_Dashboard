@@ -1,0 +1,1 @@
+Quick insights: https://app.powerbi.com//groups/me/insights/c60ac0a7-9336-4a02-892c-41401e53ec02?insightsSource=Desktop
